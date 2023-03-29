@@ -1,2 +1,2 @@
 # website.ashuchan
-lul
+XE
